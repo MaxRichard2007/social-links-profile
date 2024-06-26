@@ -37,4 +37,8 @@ You can click on the website 👇👇
 
 [social links profile max](https://sociallinksprofilemax.netlify.app/)
 
+## Attention! Attention!
+
+Use 75% screen display
+
 ### I hope I have given you good information ✌️
